@@ -1,0 +1,1 @@
+# classify distination of Jejudo
